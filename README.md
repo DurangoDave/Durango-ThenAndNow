@@ -1,5 +1,8 @@
 ## Welcome to GitHub Pages
 
+title: Durango Then and Now
+description: Historic photographs of Durango Colorado compared to today. 
+
 You can use the [editor on GitHub](https://github.com/DurangoDave/Durango-ThenAndNow/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.

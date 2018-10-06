@@ -1,7 +1,5 @@
-## Welcome to GitHub Pages
-
-title: Durango Then and Now
-description: Historic photographs of Durango Colorado compared to today. 
+#Durango Then and Now
+##Historic photographs of Durango Colorado compared to today. 
 
 You can use the [editor on GitHub](https://github.com/DurangoDave/Durango-ThenAndNow/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 

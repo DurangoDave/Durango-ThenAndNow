@@ -1,2 +1,2 @@
 # Durango-ThenAndNow
-Historic photographs of Durango Colorado compaired to today
+Historic photographs of Durango Colorado compared to today

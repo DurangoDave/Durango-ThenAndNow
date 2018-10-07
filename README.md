@@ -3,11 +3,12 @@
 
 ![Durango 1956](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Durango%201956%20FLC%20(Medium).jpg?raw=true)
 
-Durango Colorado in 1956*
-
+<p align="center">
+  Durango Colorado in 1956
+</p>
 Notice the airport runway where Fort Lewis College now stands
-
 *Photo used with the permission of the Center of Southwest Studies Fort Lewis College
+
 
 ![Durango 2007](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%202007%20(Medium).JPG)
 

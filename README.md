@@ -45,7 +45,7 @@ Across the river was the Durango Smelter
 ###### Below photo courtesy of U.S. Geological Survey (www.usgs.gov)
 
 <p align="center">
-![Smelter from the air](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter.jpg)
+  ![Smelter from the air](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter.jpg)
 </p>
 
 \

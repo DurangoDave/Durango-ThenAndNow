@@ -76,7 +76,9 @@ Two things stand out in these pictures of Animas City:
 The terminal moraines are piles of rock and dirt that were pushed along by glaciers. As the glacier receded the moraine remained as a linear hill.
 
 ![Terminal Morains](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20-%20moraines%20(Medium).jpg)
-
+\
+\
+\
 # The Porter Coal Mine
 
 In the late 19th century the Porter Mine removed coal from Wildcat Canyon. They mined coal from many locations in the canyon. In 1889 they built a 2000 foot long tunnel.  It was a very rich, easy to mine vein of coal. Unfortunately, it was also a very limited vein. The mine stopped coal production in 1908.  
@@ -139,7 +141,31 @@ Here are two pictures that were taken at the mouth of Wildcat Canyon. You can se
 
 ![Twin Buttes 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Twin%20Buttes%20from%20mouth%20of%20Wildcat%20Canyon%20%202018%20(Medium).jpg)
 
+This map is from 1953. You can see the railroad going to Perins, Durango, Porter and beyond. At this time Highway 160 went through Wildcat Canyon. It then veers northwest on what is now called County Road 125. It wasn't until 1962 that Highway 160 was redirected past what we now call Durango West housing development. 
 
+![Durango Map1953](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%201953%20map.jpg)
+
+![LaPlata Mtns](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/La%20Plata%20Mtns.jpg)
+
+The above picture is of Highway 160 as it heads down the valley toward Hesperus.  
+
+The picture below is the same view but taken in 2016. This road in the foreground is now called County Road 125 and down in the valley we can see Highway 140.
+
+![LaPlata Mtns2016](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/La%20Plata%20Mtns%202016%20(Medium).jpg)
+\
+\
+\
+# Lions Den
+
+The Lion’s Den was built by the Civilian Conservation Corps in the late 1930’s. 
+
+It is near the golf course overlooking Durango.
+
+![LionsDenOLD](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Lion's%20Den.jpg)
+
+The above picture was taken in the early 1940’s. I took the below picture in 2018.
+
+![LioinsDen2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Lion's%20Den%202018%20(Medium).JPG)
 \
 \
 \

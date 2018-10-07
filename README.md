@@ -14,12 +14,11 @@ Notice the airport runway where Fort Lewis College now stands.
 ![Durango 2007](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%202007%20(Medium).JPG)
 
 I took the above picture in 2007.\
-The picture below is from 1961
-
-###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College
+The picture below is from 1961.
 
 ![Durango 1961](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20%201961%20merged.jpg)
 
+###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College
 
 
 

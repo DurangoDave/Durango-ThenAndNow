@@ -47,11 +47,10 @@ In the late 1870's the mines near Silverton were doing great. John Porter was th
 
 ![Durango Smelter1](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter1.jpg)
 
-The above picture of the Durango Smelter was taken in about 1890.
+The above picture of the Durango Smelter was taken in about 1890. The picture below was taken in 2018.
 
-The picture below was taken in 2018.
+![Durango Smelter 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter%202018%20(Medium).JPG)
 
-![Durango Smelter 2018] (https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter%202018%20(Medium).JPG)
 \
 \
 \

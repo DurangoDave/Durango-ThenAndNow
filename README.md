@@ -43,7 +43,11 @@ I do not have a date for the above picture but I took the picture below in 2018
 Across the river was the Durango Smelter
 
 ###### Below photo courtesy of U.S. Geological Survey (www.usgs.gov)
+
+<p align="center">
 ![Smelter from the air](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter.jpg)
+</p>
+
 \
 \
 \

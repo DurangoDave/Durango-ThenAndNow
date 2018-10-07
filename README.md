@@ -28,7 +28,6 @@ Notice the airport runway where Fort Lewis College now stands.
 \
 \
 \
-
 # Santa Rita area of Durango
 
 
@@ -44,9 +43,7 @@ Across the river was the Durango Smelter
 
 ###### Below photo courtesy of U.S. Geological Survey (www.usgs.gov)
 
-<p align="center">
-  ![Smelter from the air](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter.jpg)
-</p>
+![Smelter from the air](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter.jpg)
 
 \
 \

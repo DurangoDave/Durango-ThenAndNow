@@ -15,6 +15,8 @@ Notice the airport runway where Fort Lewis College now stands.
 
 <p align="center">
   I took the above picture in 2007.  
+</p>
+<p align="center">
   The picture below is from 1961.
 </p>
 

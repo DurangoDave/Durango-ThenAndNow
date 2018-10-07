@@ -59,8 +59,6 @@ The above picture (courtesy of U.S. Geological Survey www.usgs.gov) was shot in 
 
 ![Animas City S 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%20%202018%20(Medium).jpg)
 
-
-
 ![Animas City N 1897](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20(Medium).jpg)
 
 The above picture (courtesy of U.S. Geological Survey www.usgs.gov) is another photograph of Animas City shot in 1897. 
@@ -121,7 +119,7 @@ This next picture is shot from the same spot but taken in 2018.
 
 ![Train Trestle 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20Tressel%202018%20(Medium).jpg)
 
-This map from 1908 shows the railroad going from Porter (bottom of map) to Perins or on to Durango
+This map from 1908 shows the railroad going from Porter (bottom of map) to Perins or from the wye the train could go on to Durango.
 
 ![Durango 1908 Map](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_1908%20Map.jpg)
 
@@ -134,6 +132,13 @@ The above picture is the trestle that went over the road we now call highway 160
 Here's another picture shot more than 100 years ago of a train going over the trestle bridge with the Twin Buttes in the background. The picture below is shot from the same location as my picture above.
 
 ![Train Twin ButteOLD](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20and%20Twin%20Buttes-Big.jpg)
+
+![Twin Buttes 1896](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Twin%20Buttes%20from%20mouth%20of%20Wildcat%20Canyon%201896%20(Medium).jpg)
+
+Here are two pictures that were taken at the mouth of Wildcat Canyon. You can see the Twin Buttes in the background. In the above picture you can see the railroad in the upper left, just beyond the telephone pole.  The picture below was taken in 2018.
+
+![Twin Buttes 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Twin%20Buttes%20from%20mouth%20of%20Wildcat%20Canyon%20%202018%20(Medium).jpg)
+
 
 \
 \

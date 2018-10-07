@@ -79,6 +79,62 @@ The terminal moraines are piles of rock and dirt that were pushed along by glaci
 
 ![Terminal Morains](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20-%20moraines%20(Medium).jpg)
 
+# The Porter Coal Mine
+
+In the late 19th century the Porter Mine removed coal from Wildcat Canyon. They mined coal from many locations in the canyon. In 1889 they built a 2000 foot long tunnel.  It was a very rich, easy to mine vein of coal. Unfortunately, it was also a very limited vein. The mine stopped coal production in 1908.  
+
+![Porter1905](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Porter%20Mine%201905%20(Medium).jpg)
+
+The above picture of the Porter Coal Mine was taken in 1905 (Photo courtesy of U.S. Geological Survey www.usgs.gov)
+
+There was also a town called Porter that was behind the photographer.
+
+I took the below picture of the same area in Wildcat Canyon SW of Durango in 2018.
+
+![Porter2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Porter%20Mine%202018%20(Medium).jpg)
+
+![PorterTrippleOld](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Porter%20Mine%20and%20tipple%20(Medium).jpg)
+
+The above picture is of the tripple at the Porter Coal Mine that loaded coal onto rail cars. (Photo courtesy of U.S. Geological Survey www.usgs.gov)
+
+The picture below is of the same area shot in 2018.
+
+![PorterTripple2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Porter%20Mine%20at%202018%20(Medium).jpg)
+
+![Porter Town](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Porter%20(Medium).JPG)
+
+This is the Porter area. The Porter Coal mine is in the foreground and the town of Porter is further back.
+
+I estimate the above picture was taken in the 1890’s. I took the picture below in 2018.
+
+![Porter 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Porter%202018%20(Medium).jpg)
+
+This next picture is of the mouth of Wildcat Canyon. The top path above County Road 141 used to be the railroad bed.   This railroad would cross over Lightner Creek. At that point there was a wye and the train could to on to the Boston Mine at Perins Peak or turn to Durango.
+
+![Wildcat Mouth](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Overlooking%20Wildcat%20(1)%20(Medium).JPG)
+
+![Train Trestle](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20Tressel.jpg)
+
+The above picture shows the train trestle crossing the road that goes on to town of Perrins (where the Boston Mine was). This road is now Highway 160 but up until 1962 Highway 160 to Hesperus and Cortez went through Wildcat canyon (County Rd 141) and then up through what is now county road 125. 
+
+This next picture is shot from the same spot but taken in 2018.
+
+![Train Trestle 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20Tressel%202018%20(Medium).jpg)
+
+This map from 1908 shows the railroad going from Porter (bottom of map) to Perins or on to Durango
+
+![Durango 1908 Map](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_1908%20Map.jpg)
+
+![Train Twin Butte](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20and%20Twin%20Buttes%20%20BW.jpg)
+
+The above picture is the trestle that went over the road we now call highway 160. One of the Twin Buttes is to the far right. The picture below is from the same area but shot in 2018.
+
+![Train Twin Butte2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20and%20Twin%20Buttes%202018%20(Medium).jpg)
+
+Here's another picture shot more than 100 years ago of a train going over the trestle bridge with the Twin Buttes in the background. The picture below is shot from the same location as my picture above.
+
+![Train Twin ButteOLD](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Train%20and%20Twin%20Buttes-Big.jpg)
+
 \
 \
 \

@@ -24,10 +24,7 @@ Notice the airport runway where Fort Lewis College now stands.
 
 ###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College.
 
-\
-\
-\
-\
+
 # Santa Rita area of Durango
 
 
@@ -45,6 +42,16 @@ Across the river was the Durango Smelter
 
 ![Smelter from the air](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter-big.jpg)
 
+# The Durango Smelter
+In the late 1870's the mines near Silverton were doing great. John Porter was the manager of the Silverton smelter. The problem was Silverton didn't have any coal to power the smelter. Coal was hauled up from the Durango area on the train. Coal is heavy and this was expensive. John Porter decided to start his own smelter in Durango. The heavy ore could easily be carried down from Silverton to Durango where the coal was mined. Porter made a lot of money with his Durango smelter and his coal mine in Wildcat Canyon. Other coal mines were in Horse Gulch and the Boston Mine just west of Perins Peak.
+
+![Durango Smelter1](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter1.jpg)
+
+The above picture of the Durango Smelter was taken in about 1890.
+
+The picture below was taken in 2018.
+
+![Durango Smelter 2018] (https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter%202018%20(Medium).JPG)
 \
 \
 \

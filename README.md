@@ -23,11 +23,12 @@ Notice the airport runway where Fort Lewis College now stands.
 ![Durango 1961](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20%201961%20merged.jpg)
 
 ###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College.
+
 \
 \
-<p align="center">
-Santa Rita area of Durango
-</p>
+
+# Santa Rita area of Durango
+
 
 ![Santa Rita in past](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Santa%20Rita%20(Durango%2C%20CO)%20FLC%20(Medium).jpg)
 \

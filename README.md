@@ -1,6 +1,16 @@
 # Durango Then and Now
 ## Historic photographs of Durango Colorado compared to today. 
 
+![Durango 1956](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Durango%201956%20FLC%20(Medium).jpg?raw=true)
+
+Durango Colorado in 1956*
+
+Notice the airport runway where Fort Lewis College now stands
+
+*Photo used with the permission of the Center of Southwest Studies Fort Lewis College
+
+
+
 
 
 You can use the [editor on GitHub](https://github.com/DurangoDave/Durango-ThenAndNow/edit/master/README.md) to maintain and preview the content for your website in Markdown files.

@@ -18,20 +18,15 @@ The picture below is from 1961.
 
 ![Durango 1961](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20%201961%20merged.jpg)
 
-###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College
-
-
-
-
-
-
-
-
-
-
-
-
-
+###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College.
+\
+\
+\
+\
+\
+\
+\
+\
 You can use the [editor on GitHub](https://github.com/DurangoDave/Durango-ThenAndNow/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.

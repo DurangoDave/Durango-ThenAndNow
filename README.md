@@ -63,11 +63,21 @@ The above picture (courtesy of U.S. Geological Survey www.usgs.gov) was shot in 
 
 ![Animas City N 1897](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20(Medium).jpg)
 
-The above picture (courtesy of U.S. Geological Survey www.usgs.gov) is another photograph of Animas City shot in 1897. I shot the picture below in 2018.
+The above picture (courtesy of U.S. Geological Survey www.usgs.gov) is another photograph of Animas City shot in 1897. 
+
+I shot the picture below in 2018.
 
 ![Animas City N 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%202018%20(Medium).jpg)
 
+Two things stand out in these pictures of Animas City:
 
+1.   We have planted more trees than were originally in the Animas Valley.
+
+2.  The glacial terminal moraines were more noticeable with fewer trees.
+
+The terminal moraines are piles of rock and dirt that were pushed along by glaciers. As the glacier receded the moraine remained as a linear hill.
+
+![Terminal Morains](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20-%20moraines%20(Medium).jpg)
 
 \
 \

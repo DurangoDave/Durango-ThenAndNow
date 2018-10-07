@@ -76,9 +76,7 @@ Two things stand out in these pictures of Animas City:
 The terminal moraines are piles of rock and dirt that were pushed along by glaciers. As the glacier receded the moraine remained as a linear hill.
 
 ![Terminal Morains](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20-%20moraines%20(Medium).jpg)
-\
-\
-\
+
 # The Porter Coal Mine
 
 In the late 19th century the Porter Mine removed coal from Wildcat Canyon. They mined coal from many locations in the canyon. In 1889 they built a 2000 foot long tunnel.  It was a very rich, easy to mine vein of coal. Unfortunately, it was also a very limited vein. The mine stopped coal production in 1908.  
@@ -152,9 +150,7 @@ The above picture is of Highway 160 as it heads down the valley toward Hesperus.
 The picture below is the same view but taken in 2016. This road in the foreground is now called County Road 125 and down in the valley we can see Highway 140.
 
 ![LaPlata Mtns2016](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/La%20Plata%20Mtns%202016%20(Medium).jpg)
-\
-\
-\
+
 # Lions Den
 
 The Lion’s Den was built by the Civilian Conservation Corps in the late 1930’s. 

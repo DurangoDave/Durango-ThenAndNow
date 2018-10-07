@@ -24,6 +24,7 @@ Notice the airport runway where Fort Lewis College now stands.
 
 ###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College.
 
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
 # Santa Rita area of Durango
 
@@ -51,6 +52,8 @@ The above picture of the Durango Smelter was taken in about 1890. The picture be
 
 ![Durango Smelter 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter%202018%20(Medium).JPG)
 
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
 # Animas City 
 
 ![Animas City South 1897](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%20%201897%20(Medium).jpg)
@@ -76,6 +79,8 @@ Two things stand out in these pictures of Animas City:
 The terminal moraines are piles of rock and dirt that were pushed along by glaciers. As the glacier receded the moraine remained as a linear hill.
 
 ![Terminal Morains](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20-%20moraines%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
 # The Porter Coal Mine
 
@@ -150,6 +155,8 @@ The above picture is of Highway 160 as it heads down the valley toward Hesperus.
 The picture below is the same view but taken in 2016. This road in the foreground is now called County Road 125 and down in the valley we can see Highway 140.
 
 ![LaPlata Mtns2016](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/La%20Plata%20Mtns%202016%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
 # Lions Den
 

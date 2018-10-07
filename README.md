@@ -7,6 +7,7 @@
   Durango Colorado in 1956
 </p>
 Notice the airport runway where Fort Lewis College now stands
+
 *Photo used with the permission of the Center of Southwest Studies Fort Lewis College
 
 

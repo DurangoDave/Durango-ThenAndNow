@@ -23,14 +23,24 @@ Notice the airport runway where Fort Lewis College now stands.
 ![Durango 1961](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20%201961%20merged.jpg)
 
 ###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College.
+
 \
 \
 \
 \
+
 # Santa Rita area of Durango
 
 
 ![Santa Rita in past](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Santa%20Rita%20(Durango%2C%20CO)%20FLC%20(Medium).jpg)
+
+###### Above picture is used with the permission of the Center of Southwest Studies Fort Lewis College
+Santa Rita area of Durango
+I do not have a date for the above picture but I took the picture below in 2018
+![Santa Rita in 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Santa%20Rita%20(Durango%2C%20CO)%202018%20(Medium).jpg)
+
+Across the river was the Durango Smelter
+Below photo courtesy of U.S. Geological Survey (www.usgs.gov)
 \
 \
 \

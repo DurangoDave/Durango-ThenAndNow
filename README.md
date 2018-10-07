@@ -162,6 +162,15 @@ It is near the golf course overlooking Durango.
 The above picture was taken in the early 1940’s. I took the below picture in 2018.
 
 ![LioinsDen2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Lion's%20Den%202018%20(Medium).JPG)
+
+# Animas City Mountain
+
+![Animas Mt OLD](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_Animas%20Mt.jpg)
+
+This is the view from the Lions Den. I don't have a date for the above picture but I took the picture below in 2018.
+
+![Animas Mt 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_Animas%20Mt%202018%20(Medium).jpg)
+
 \
 \
 \

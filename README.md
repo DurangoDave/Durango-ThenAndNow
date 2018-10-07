@@ -47,9 +47,27 @@ In the late 1870's the mines near Silverton were doing great. John Porter was th
 
 ![Durango Smelter1](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter1.jpg)
 
-The above picture of the Durango Smelter was taken in about 1890. The picture below was taken in 2018.
+The above picture of the Durango Smelter was taken in about 1890. The picture below was taken in 2018 from the same area.
 
 ![Durango Smelter 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter%202018%20(Medium).JPG)
+
+# Animas City 
+
+![Animas City South 1897](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%20%201897%20(Medium).jpg)
+
+The above picture (courtesy of U.S. Geological Survey www.usgs.gov) was shot in 1897. I shot the picture below in 2018.
+
+![Animas City S 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%20%202018%20(Medium).jpg)
+
+
+
+![Animas City N 1897](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20(Medium).jpg)
+
+The above picture (courtesy of U.S. Geological Survey www.usgs.gov) is another photograph of Animas City shot in 1897. I shot the picture below in 2018.
+
+![Animas City N 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%202018%20(Medium).jpg)
+
+
 
 \
 \

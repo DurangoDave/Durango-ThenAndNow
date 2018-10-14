@@ -128,10 +128,18 @@ The building has long since been demolished but the sign has been repurposed at 
 
 # The Hanging Tree
 
-     On April 11, 1881 Henry R. Moorman went to the Coliseum Dance Hall in Durango. After getting rather drunk he got out his revolver and started to shoot up the place. He shot into the ceiling and into the floor. One bullet went strait into the chest of James Prindle who died instantly. Henry slipped out of the dance hall while everyone was tending to James. A posse of vigilantes tracked down Henry that night and hung him from a large ponderosa pine. This posse called themselves the "Committee of Safety". After Henry Moorman was dead the Committee of Safety put a note on his body saying "if you cut me down from this tree you will take my place".
-     This large pine is just to the left of the center of the picture below. This ponderosa was referred to as the "hanging tree" until it was cut down. The Toh-Atin Gallery is where the hanging tree used to stand.
-     The next and only other hanging in Durango was of George N. Woods in June 1882. This was a legal hanging. A judge sentenced George Woods to death by hanging for the murder of M. C. Buchanan at the Pacific Club Saloon. 
+On April 11, 1881 Henry R. Moorman went to the Coliseum Dance Hall in Durango. After getting rather drunk he got out his revolver and started to shoot up the place. He shot into the ceiling and into the floor. One bullet went strait into the chest of James Prindle who died instantly. Henry slipped out of the dance hall while everyone was tending to James. A posse of vigilantes tracked down Henry that night and hung him from a large ponderosa pine. This posse called themselves the "Committee of Safety". After Henry Moorman was dead the Committee of Safety put a note on his body saying "if you cut me down from this tree you will take my place".
+
+This large pine is just to the left of the center of the picture below. This ponderosa was referred to as the "hanging tree" until it was cut down. The Toh-Atin Gallery is where the hanging tree used to stand.
+
+The next and only other hanging in Durango was of George N. Woods in June 1882. This was a legal hanging. A judge sentenced George Woods to death by hanging for the murder of M. C. Buchanan at the Pacific Club Saloon. 
      
+![HangingTree1880](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Hanging%20tree%201880.jpg)
+
+The picture above was taken in 1880, before the hanging.
+I took the picture below of the same area in 2018.
+
+![HangingTree2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Hanging%20tree%202018%20(Medium).JPG)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)

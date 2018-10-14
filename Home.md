@@ -26,7 +26,7 @@ Notice the airport runway where Fort Lewis College now stands.
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
-[Santa Rita] (home.md#santa-rita-area-of-durango)
+[Santa Rita] (https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#santa-rita-area-of-durango)
 
 
 # Santa Rita area of Durango

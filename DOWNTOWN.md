@@ -141,4 +141,13 @@ I took the picture below of the same area in 2018.
 ![HangingTree2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Hanging%20tree%202018%20(Medium).JPG)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# The Durango Chamber of Commerce building was built in the 1960’s.
+
+![ChamberOfComerce](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Old%20Chamber%20of%20Commerce%20Building%2060's%201985.jpg)
+
+The above post card was taken in 1985. The picture below was taken in 2017, long after the Chamber of Commerce moved out of the building. The city plans to move the Chamber of Commerce back to this location. I’ll take another picture when the new building has been completed.
+
+
+
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)

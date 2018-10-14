@@ -15,6 +15,8 @@ I’m not sure when the above picture was taken but I took the picture below in 
 
 ![General Palmer 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/General%20Palmer%202018%20(Medium).jpg)
 
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
 # Strater Hotel
 
 ![Strater Hotel](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Strater%20Hotel.jpg)
@@ -33,5 +35,39 @@ I took this next picture in 2018.
 
 ![Strater2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Strater%20in%202018%20(Medium).JPG)
 
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
 # 6th and Main
+![Main and 6th70s](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Main%20and%206th%20in%20the%2070's.jpg)
+
+The above picture was taken in the 1970’s.  The Strater and the Francisco’s Buildings haven't changed much but 6th Street is now known as College Drive.
+
+I took the picture below in 2018.
+
+![Main6th 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Main%20and%206th%20in%202018%20(Medium).JPG)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# First National Bank
+
+![1stNationalBank](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/First%20National%20Bank.jpg)
+
+The First National Bank is the oldest continuous running business in Durango. It was founded in Animas City in 1880 and the next year this building was built.
+
+![1stNationalBank2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/First%20National%20Bank%202018%20(Medium).JPG)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# The Burns Bank
+
+![900Main1920s](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/900%20Block%20of%20Main%20in%20the%201920's.jpg)
+
+In 1892 this building was built as the Colorado State Bank. The bank failed during the silver crash of 1907. At that time the bank changed hands and became the Burns Bank. In 2000 the Bank of Colorado acquired the Burns Bank and used the building as a branch for a few years. Then the building became the Scoot'n Blues Cafe and Lounge until In September 2008. At that time the Irish Embassy opened in that location.
+The above picture was taken in the 1920's. I took the picture below in 2018
+
+![900Main2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/900%20Block%20of%20Main%202018%20(Medium).JPG)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# Another view of 9th and Main
 

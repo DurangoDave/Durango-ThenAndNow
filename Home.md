@@ -24,8 +24,6 @@ Notice the airport runway where Fort Lewis College now stands.
 
 ###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College.
 
-[Return to Menu](#menu)
-
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
 # Menu
@@ -61,7 +59,7 @@ The above picture of the Durango Smelter was taken in about 1890. The picture be
 
 ![Durango Smelter 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Smelter%202018%20(Medium).JPG)
 
-[Return to Menu](#menu)
+- [Return to Menu](#menu)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
@@ -91,7 +89,7 @@ The terminal moraines are piles of rock and dirt that were pushed along by glaci
 
 ![Terminal Morains](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Animas%20City%201897%20-%20moraines%20(Medium).jpg)
 
-[Return to Menu](#menu)
+- [Return to Menu](#menu)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
@@ -169,7 +167,7 @@ The picture below is the same view but taken in 2016. This road in the foregroun
 
 ![LaPlata Mtns2016](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/La%20Plata%20Mtns%202016%20(Medium).jpg)
 
-[Return to Menu](#menu)
+- [Return to Menu](#menu)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
@@ -193,7 +191,7 @@ This is the view from the Lions Den. I don't have a date for the above picture b
 
 ![Animas Mt 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_Animas%20Mt%202018%20(Medium).jpg)
 
-[Return to Menu](#menu)
+- [Return to Menu](#menu)
 \
 \
 \

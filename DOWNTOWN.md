@@ -83,3 +83,58 @@ The above picture is from the 1960’s. I took the picture below in 2018.
 
 # 800 block of Main Avenue
 
+![Durango1956](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%201956.jpg)
+
+This is the 800 block of Main Avenue. Most of these buildings are no longer standing unless you look down the next block where you’ll see the First National Band and the Burns Bank. In 1974 an arson fire destroyed six buildings on the western (left) side of the street. Gilbert Martinez confessed to starting the fire that took the life of a fireman and a police officer. The Main Mall was built where some of the destroyed buildings once stood.
+
+The picture above was shot in 1956. Below is the same view but shot in 2018.
+
+![Durango2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%202018%20(Medium).JPG)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# Main Avenue bridge over the Animas
+
+![Stone Brige Accross Animas](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Stone%20Bridge%20across%20Animas%20River%20(Durango%2C%20Colo.).jpg)
+
+I was unable to recreate the above picture due to all the trees that are now growing in Rotary Park.
+
+I was able to shoot the picture below near the fish hatchery in 2018.
+
+![Stone Bridge Over Animas](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Stone%20bridge%20over%20Animas%20River%202018%20(Medium).jpg)
+
+The above picture is very similar to this old post card.
+
+![StoneBridgeOverAnimas2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Stone%20bridge%20over%20Animas%20River-FLC%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+###### Above Photo used with the permission of the Center of Southwest Studies Fort Lewis College.
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# In the 50’s the Chief Diner was built at 2127 Main Ave.
+
+![ChiefDiner](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/The%20Chief%20Diner%20Durango.jpg)
+
+Some pictures I’ve found show the sign saying the “Chief Restaurant” some say the “Chief Diner”.
+
+The building has long since been demolished but the sign has been repurposed at the Toh Atin Gallery.
+
+![ChiefDinerSign](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/The%20Chief%20Diner%20Sign%20(Medium).jpg)
+
+![ChiefDinerMenu](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/The%20Chief%20Diner%20Durango%20menu%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# The Hanging Tree
+
+     On April 11, 1881 Henry R. Moorman went to the Coliseum Dance Hall in Durango. After getting rather drunk he got out his revolver and started to shoot up the place. He shot into the ceiling and into the floor. One bullet went strait into the chest of James Prindle who died instantly. Henry slipped out of the dance hall while everyone was tending to James. A posse of vigilantes tracked down Henry that night and hung him from a large ponderosa pine. This posse called themselves the "Committee of Safety". After Henry Moorman was dead the Committee of Safety put a note on his body saying "if you cut me down from this tree you will take my place".
+     This large pine is just to the left of the center of the picture below. This ponderosa was referred to as the "hanging tree" until it was cut down. The Toh-Atin Gallery is where the hanging tree used to stand.
+     The next and only other hanging in Durango was of George N. Woods in June 1882. This was a legal hanging. A judge sentenced George Woods to death by hanging for the murder of M. C. Buchanan at the Pacific Club Saloon. 
+     
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)

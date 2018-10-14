@@ -26,7 +26,12 @@ Notice the airport runway where Fort Lewis College now stands.
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
+# Menu
 - [Santa Rita](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#santa-rita-area-of-durango)
+- [Animas City](#animas-city)
+- [Porter Coal Mine](#the-porter-coal-mine)
+- [Lion's Den](#lions-den)
+
 
 # Santa Rita area of Durango
 
@@ -180,6 +185,7 @@ This is the view from the Lions Den. I don't have a date for the above picture b
 
 ![Animas Mt 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_Animas%20Mt%202018%20(Medium).jpg)
 
+[Menu](#Menu)
 \
 \
 \

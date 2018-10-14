@@ -71,3 +71,15 @@ The above picture was taken in the 1920's. I took the picture below in 2018
 
 # Another view of 9th and Main
 
+![Mainand9th](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Main%20and%209th.jpg)
+
+This is the intersection of 9th and Main. The First National Bank and the Burns Bank are across the street from each other.
+
+The above picture is from the 1960’s. I took the picture below in 2018.
+
+![Mainand9th2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Main%20and%209th%202018%20(Medium).JPG)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# 800 block of Main Avenue
+

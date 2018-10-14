@@ -107,7 +107,6 @@ The above picture is very similar to this old post card.
 
 ![StoneBridgeOverAnimas2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Stone%20bridge%20over%20Animas%20River-FLC%20(Medium).jpg)
 
-![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 ###### Above Photo used with the permission of the Center of Southwest Studies Fort Lewis College.
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
@@ -141,8 +140,5 @@ I took the picture below of the same area in 2018.
 
 ![HangingTree2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango%20Hanging%20tree%202018%20(Medium).JPG)
 
-![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
-![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
-![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)

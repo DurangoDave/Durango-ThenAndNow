@@ -185,7 +185,7 @@ This is the view from the Lions Den. I don't have a date for the above picture b
 
 ![Animas Mt 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Durango_Animas%20Mt%202018%20(Medium).jpg)
 
-[Menu](#Menu)
+[Return to Menu](#menu)
 \
 \
 \

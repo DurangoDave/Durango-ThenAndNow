@@ -9,3 +9,29 @@ Durango was founded in 1880 by General William Palmer. William Palmer was a gene
 
 General Palmer built this Hotel in 1898. 
 
+![General Palmer](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/General%20Palmer.jpg)
+
+I’m not sure when the above picture was taken but I took the picture below in 2018.
+
+![General Palmer 2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/General%20Palmer%202018%20(Medium).jpg)
+
+# Strater Hotel
+
+![Strater Hotel](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Strater%20Hotel.jpg)
+
+The Strater was built in 1887 by a pharmacist by the name of Henry Strater. Henry had a pharmacy at the corner entrance to the building. He leased out the rest of the building to H. L. Rice who ran the Stater Hotel. Unfortunately the lease Henry Strater wrote up did not exclude the pharmacy and H. L. Rice insisted that the Strater Pharmacy move out of the building. Without a legal leg to stand on Strater did move out of his own building. 
+
+The below picture was taken in 1904. You can see the building originally had a clock tower.
+
+![Strater1904](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Strater%20Hotel%201904-when-courtesy-Strater-Hotel.jpg)
+
+You can see from this next picture shot in the mid 1950’s that the clock tower no longer exists. The hotel has also been extended to the west (the right in this picture).
+
+![Strater50s](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Strater%20in%20the%2050's.jpg)
+
+I took this next picture in 2018.
+
+![Strater2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Strater%20in%202018%20(Medium).JPG)
+
+# 6th and Main
+

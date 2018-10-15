@@ -33,6 +33,8 @@ Notice the airport runway where Fort Lewis College now stands.
 - [Lion's Den](#lions-den)
 - [Downtown](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/DOWNTOWN.md#downtown)
 
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
 # Santa Rita area of Durango
 
 

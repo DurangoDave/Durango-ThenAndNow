@@ -18,9 +18,9 @@ Far in the distance are the La Plata Mountains.
 
 The picture below is from 1923
 
-###### Photo used with the permission of the Center of Southwest Studies Fort Lewis College
-
 ![PerinsPeak1923](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Perin's%20Peak%201923-FLC%20(Medium).jpg)
+
+###### Photo used with the permission of the Center of Southwest Studies Fort Lewis College
 
 - [Return to Menu](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#menu)
 

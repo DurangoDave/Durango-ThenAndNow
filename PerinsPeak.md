@@ -91,6 +91,8 @@ Thompson Park is seven miles east of Mancos CO. The above picture was taken in 1
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
+# Million Dollar Highway
+
 ![MearsTollRoad](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Mears_toll_road%20(Medium).jpg)
 
 ###### Above photo courtesy of U.S. Geological Survey (www.usgs.gov)

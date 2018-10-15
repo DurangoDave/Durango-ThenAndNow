@@ -33,6 +33,8 @@ Notice the airport runway where Fort Lewis College now stands.
 - [Lion's Den](#lions-den)
 - [Downtown](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/DOWNTOWN.md#downtown)
 - [Perins Peak Mine](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/PerinsPeak.md#perins-peak-coal-mine)
+- [Bakers Bridge](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/PerinsPeak.md#bakers-bridge)
+- [Contact Me](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/CONTACTME.md)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 

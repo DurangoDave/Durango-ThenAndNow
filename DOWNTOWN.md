@@ -162,4 +162,4 @@ I took the picture below in 2009.  You can see several changes, most notably the
 
 ![Prespyterian Church2009](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Presbyterian%20Church%20Durango%202009%20(Medium).jpg)
 
-- [Return to Menu](#menu)
+- [Return to Menu](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#menu)

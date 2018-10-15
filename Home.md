@@ -196,6 +196,8 @@ This is the view from the Lions Den. I don't have a date for the above picture b
 
 - [Return to the Menu](#menu)
 - [Continue to Downtown](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/DOWNTOWN.md#downtown)
+
+- [Contact Me](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/CONTACTME.md)
 \
 \
 \

@@ -89,3 +89,14 @@ Thompson Park is seven miles east of Mancos CO. The above picture was taken in 1
 
 ![ThompsonPark2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%202018%20(Medium).JPG)
 
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+
+
+Otto Mears built many toll roads in the San Juan Mountains.
+
+This is his toll booth at Bear Creek Falls on the Million Dollar Highway between Silverton and Ouray.
+
+###### Both photos courtesy of U.S. Geological Survey (www.usgs.gov)
+
+Otto Mears also built a toll road from Animas City through Durango and Wildcat canyon to Fort Lewis south of Hesperus CO. He had a toll booth near Lightner Creek where highway 160 is today. 

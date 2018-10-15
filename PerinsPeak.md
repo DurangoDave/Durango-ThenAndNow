@@ -52,3 +52,35 @@ Water is running over the full length of the dam beyond the bridge.
 
 - [Return to Menu](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#menu)
 
+
+![US550](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/U.S.%20Highway%20550%20(south%20of%20Durango%2C%20Colo.)-FLC%20(Medium).jpg)
+
+These two pictures were taken from highway 550 south of Durango on what is known as Farmington Hill.
+
+I do not have a date for the above picture but I took the picture below in 2018.
+
+###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College
+
+![US550-2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/U.S.%20Highway%20550%20(south%20of%20Durango%2C%20Colo.)%202018%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+![EarlyViewDurango1885](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Early%20view%20of%20the%20city%20of%20Durango%201885.jpg)
+
+###### Above photo courtesy of U.S. Geological Survey (www.usgs.gov)
+
+These two pictures are of the Animas River and northern Durango.
+
+The picture above was taken in 1885
+
+I took the picture below in 2018
+
+![EarlyViewDurango2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Early%20view%20of%20the%20city%20of%20Durango%202018%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+
+
+###### Above photo courtesy of U.S. Geological Survey (www.usgs.gov)
+
+Thompson Park is seven miles east of Mancos CO. The above picture was taken in 1911*. The picture below was taken in 2018. Highway 160 can be seen in this picture. Target Tree Campground is in the trees in the center of this picture.

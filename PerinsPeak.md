@@ -52,7 +52,6 @@ Water is running over the full length of the dam beyond the bridge.
 
 - [Return to Menu](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#menu)
 
-
 ![US550](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/U.S.%20Highway%20550%20(south%20of%20Durango%2C%20Colo.)-FLC%20(Medium).jpg)
 
 These two pictures were taken from highway 550 south of Durango on what is known as Farmington Hill.
@@ -87,7 +86,7 @@ I took the picture below in 2018
 
 Thompson Park is seven miles east of Mancos CO. The above picture was taken in 1911. The picture below was taken in 2018. Highway 160 can be seen in this picture. Target Tree Campground is in the trees in the center of this picture.
 
-![ThompsonPark2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%202018%20(Medium).JPG)
+![ThompsonPark2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%20(north%20end)%201911%20(Medium)Cropped.jpg)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 

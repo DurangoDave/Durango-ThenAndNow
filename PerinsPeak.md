@@ -80,13 +80,13 @@ I took the picture below in 2018
 
 # Thompson Park
 
-![ThompsonPark](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%20(north%20end)%201911%20(Medium).jpg)
+![ThompsonPark](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%20(north%20end)%201911%20(Medium)Cropped.jpg)
 
 ###### Above photo courtesy of U.S. Geological Survey (www.usgs.gov)
 
 Thompson Park is seven miles east of Mancos CO. The above picture was taken in 1911. The picture below was taken in 2018. Highway 160 can be seen in this picture. Target Tree Campground is in the trees in the center of this picture.
 
-![ThompsonPark2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%20(north%20end)%201911%20(Medium)Cropped.jpg)
+![ThompsonPark2018](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Thompsons%20Park%202018%20(Medium).JPG)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 

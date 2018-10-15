@@ -32,8 +32,23 @@ In 1860 Charles Baker came into the area where Silverton CO is now. He mined gol
 
 Bakers bridge over the Animas River is 14 miles north of Durango. The old Bakers bridge pictured here was immediately north of the current Baker Bridge. The center support for the bridge is shown to rest on a large rock that no longer exists.  Why does so much water flow down to the left side of that support? Beyond the bridge you can see a wooden ‘dam’ diverting water to our left. I don’t know why such a structure was built.
 
-
+![BakersBridge](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Baker's%20Bridge-cropped.jpg)
 
 ###### Above photo used with the permission of the Center of Southwest Studies Fort Lewis College
 
 Below is the same area shot from the current Bakers Bridge in 2011.
+
+![Bakers Bridge](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Baker's%20Bridge%202011%20(Medium).jpg)
+
+Below is another picture of Baker’s Bridge shot in 1895.
+
+Water is running over the full length of the dam beyond the bridge.
+
+###### Photo courtesy of U.S. Geological Survey (www.usgs.gov)
+
+![BakersBridge2](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Baker's%20Bridge%202%20(Medium).jpg)
+
+![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+- [Return to Menu](https://github.com/DurangoDave/Durango-ThenAndNow/blob/master/Home.md#menu)
+

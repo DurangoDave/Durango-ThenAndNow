@@ -142,12 +142,24 @@ I took the picture below of the same area in 2018.
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
 
-# The Durango Chamber of Commerce building was built in the 1960’s.
+# Durango Chamber of Commerce building, built in the 1960’s
 
 ![ChamberOfComerce](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Old%20Chamber%20of%20Commerce%20Building%2060's%201985.jpg)
 
 The above post card was taken in 1985. The picture below was taken in 2017, long after the Chamber of Commerce moved out of the building. The city plans to move the Chamber of Commerce back to this location. I’ll take another picture when the new building has been completed.
 
-
+![ChamberOfCoverce2017](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Old%20Chamber%20of%20Commerce%20Building%202017.jpg)
 
 ![Line](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Line.jpg)
+
+# The Presbyterian Church is at the corner of 12th Street and 3rd Ave.
+
+![PresbyterianChurch](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Presbyterian%20Church%20Durango%20BW.jpg)
+
+The Presbyterian Church was built in 1889.
+
+I took the picture below in 2009.  You can see several changes, most notably the addition extending toward the west (right).
+
+![Prespyterian Church2009](https://raw.githubusercontent.com/DurangoDave/Durango-ThenAndNow/master/Presbyterian%20Church%20Durango%202009%20(Medium).jpg)
+
+- [Return to Menu](#menu)
